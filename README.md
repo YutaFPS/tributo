@@ -1,5 +1,5 @@
 ## Crazy Diamond
-![](Ilajs0eZiy44hPxfwP0maSjlQyDbeyYPD84bc3v_JeQ.webp)
+![alt](Ilajs0eZiy44hPxfwP0maSjlQyDbeyYPD84bc3v_JeQ.webp)
 
 Crazy Diamond é o Stand de Josuke Higashikata, de *JoJo's Bizarre Adventure: Diamond is Unbreakable*. Ele é famoso por sua habilidade de reparar e restaurar objetos e seres vivos.
 
